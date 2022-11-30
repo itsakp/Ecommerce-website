@@ -24,13 +24,5 @@ Email me Now **akpandey.kvpy@gmail.com** to get this Full Project Code, PPT, Rep
 
 
 
-### 1000 Computer Science Projects : https://www.computer-science-project.in/
-
-Mail/Message me for Projects Help 🙏🏻
-
-
-### Liked Project?
-If you Like Idea/ Research Paper/Project then Mail or Click on Star button🙏🏻
-
 
 
